@@ -3,6 +3,7 @@
 <table align="center"><th>
 <details><summary> <br> iwc  </summary>  
 albert shaw / grabber fictives iwec or just dni if you aren ' t going to be respectful . i get extremely anxious around grabbers .
+ people that make jokes about the missing boys or the grabber , i don ' t know how to handle jokes about him . they make me feel rather uncomfortable .
  </details>
 </th></table>
 
