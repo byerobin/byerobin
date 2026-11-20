@@ -1,2 +1,9 @@
-<img width="498" height="280" alt="68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f75477876586f4d734d59305131673d3d2d313236353031393531302e313731306537646265393765346562" src="https://github.com/user-attachments/assets/805c22ad-b8c1-4dbe-a2d2-ba1dbcc9d65e" />
+<img width="498" height="280" alt="68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f75477876586f4d734d59305131673d3d2d313236353031393531302e313731306537646265393765346562" src="https://github.com/user-attachments/assets/805c22ad-b8c1-4dbe-a2d2-ba1dbcc9d65e"/>
+
+<table align="center"><th>
+<details><summary> <br> "iwc"  </summary>  
+albert shaw / grabber fictives iwec or just dni if you aren ' t going to be respectful . i get extremely anxious around grabbers .
+ </details>
+</th></table>
+
 
